@@ -44,6 +44,6 @@
 ## Thành Viên
 - **Lê Quang Vinh**
 - **Phạm Nguyễn Bá Minh** - 2274801030088
-- **Nguyễn Việt Linh**
+- **Nguyễn Việt Linh** - 2274801030085
 ### Link Hữu Dụng
 - https://shopee.vn/
